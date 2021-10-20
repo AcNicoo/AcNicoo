@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AcNicoo
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on Mert
+- 📫 How to reach me: Discord - 🗿Nico#2162
